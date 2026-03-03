@@ -4,8 +4,8 @@
 
 **青云梯机场官网**
 
-- (https://qingyunti.pro/)[https://ivt02.qytaff.cc/register?aff=hZe1CXIo] 新域名
-- (https://web01.qingyunti.cc/)[https://ivt02.qytaff.cc/register?aff=hZe1CXIo]
+- [https://qingyunti.pro/](https://ivt02.qytaff.cc/register?aff=hZe1CXIo) 新域名
+- [https://web01.qingyunti.cc/](https://ivt02.qytaff.cc/register?aff=hZe1CXIo) 备用
 
 ## 一、青云梯机场简介
 
